@@ -17,8 +17,14 @@ Comprising 5 of the seven notes, it's classified as an audava (pentatonic) raga,
 >* mukhya-ang2:     ,N R G S ; G P G ; R P G ; N P G R ; G R G R S ; ,N ,P ,N R ,N ,P S
 >
 
-In another case of apocryphal legends colliding, swans have had their place in both Greek and Vedic tales. Swansong might be common tongue these days for a heroic performance usually preceeding a retiral, but in an early Aesop's fable ["The Swan and the Goose"](https://en.wikipedia.org/wiki/The_Swan_and_the_Goose), the swan's song actually saves it's life (no deaths for those looking for some cheap thrills). It's also curious how this persists given that most swans in real life genuinely don't make much noise.
+In another case of apocryphal legends colliding, swans have had their place in both Greek and Vedic tales. Swansong might be common tongue these days for a heroic performance usually preceeding a retiral, but in an early Aesop's fable ["The Swan and the Goose"](https://en.wikipedia.org/wiki/The_Swan_and_the_Goose), the swan's song actually saves it's life (no deaths for those looking for some cheap thrills). The Greeks also considered the swans to stand for harmony and beauty. 
 
-Back to reality......let's talk symbolism!
+In other apocryphal legends,
+> [Hamsa is a swan like mythical bird, inhabiting the Manasa lake in the Himalayan heights and regarded as a celestial being, symbolizing purity, freedom, wisdom, and salvation.](https://icmacy.org/what-is-icm-raag-hamsadhwani/)
 
-Swans have stood for harmony and beauty 
+With all these odds stacked in it's favor it's no suprise, hamsadhwani comes across as a bright, peaceful, melodious raga that can be turned up to bring out some energy as well.
+
+Performances
+1. 
+
+
